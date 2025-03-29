@@ -1,1 +1,1 @@
-https://shivanktpod.github.io/resume/
+https://shivanktpod.github.io/portfolio
